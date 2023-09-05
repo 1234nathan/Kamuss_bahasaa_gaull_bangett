@@ -1,0 +1,1 @@
+# Kamuss_bahasaa_gaull_bangett
